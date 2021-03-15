@@ -9,6 +9,6 @@ author_profile: true
 #### Photo albums for teacher/student practice
 * [February 2021](https://photos.app.goo.gl/tvP9mwi34vLNZQmZ7)
 
-* [January 2021](https://photos.app.goo.gl/TeP95XTFhDE78PPL7)
+* [January 2021](https://photos.app.goo.gl/78NfUu7nftYUZqij9)
 
 * [December 2020](https://photos.app.goo.gl/TeP95XTFhDE78PPL7)

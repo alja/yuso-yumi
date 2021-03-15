@@ -15,13 +15,14 @@ More info [Japanese Head Quoters](https://www.sogetsu.or.jp/e/)
 
 Yumi’s first exposure to Ikebana was when she was in 7th grade in Japan. She had to take an Ikebana class for her middle school’s extra curriculum but had never appreciated the beauty of Ikebana until she was an adult and came to US. Her first Sogetsu teacher was Mrs. Reiyo Nakajima.
 
-Past 35 years she’s been teaching, giving demonstration, workshop and continue to studying Ikebana. When she goes to Japan once or twice a year, she visits to Sogetsu headquarter in Tokyo and takes some classes if possible. Also, try to attend the workshops conduct by master teachers from headquarter when they come to pacific west coast. For past 17 years, she’s been studying under Mrs. Shoka Narimatsu and then Mrs. Kika Shibata who is the Sogetsu US west director. Since she moved to San Diego 2003, she’s been teaching at Japanese Friendship Garden in Balboa Park every Tuesday, also teaches from kindergarten to middle school children during summer camp there. She taught Ikebana at Poway Adult School for 4 years. She has been a participant artist at San Diego Museum of Art “Art Alive”, a member of Ikebana International San Diego Chapter, Sogetsu San Diego Branch, Sogetsu Shoka-kai San Diego, Sogetsu Teacher Association (STA) in Tokyo headquarter. 
+Past 35 years she’s been teaching, giving demonstration, workshop and continue to studying Ikebana. When she goes to Japan once or twice a year, she visits to Sogetsu headquarter in Tokyo and takes some classes if possible. Also, try to attend the workshops conduct by master teachers from headquarter when they come to pacific west coast. For past 17 years, she’s been studying under Mrs. Shoka Narimatsu and then Mrs. Kika Shibata who is the Sogetsu US west director. Since she moved to San Diego 2003, she’s been teaching at Japanese Friendship Garden in Balboa Park every Tuesday, also teaches from kindergarten to middle school children during summer camp there. She taught Ikebana at Poway Adult School for 4 years. She has been a participant artist at San Diego Museum of Art “Art Alive”, a member of Ikebana International San Diego Chapter, Sogetsu San Diego Branch, Sogetsu Shoka-kai San Diego, Sogetsu Teacher Association (STA) in Tokyo Headquarters. 
 
-She served as a president and vice president of Ikebana international Akron Chapter, a vice president, program chairman, and flowers show chairman of Ikebana International San Diego Chapter.
-
-Since spring of 2020 during Pandemic, she has been serving as a director of San Diego Sogetsu Branch. She also offers Ikebana demonstration and classes.
+She served as a president and vice president of Ikebana international Akron Chapter, a vice president, program chairman, and flowers show chairman of Ikebana International San Diego Chapter. Since spring of 2020 during Pandemic, she has been serving as a director of [San Diego Sogetsu Branch](https://sogetsu.space/).
 
 She loves to create Ikebana using woods, bamboo, palm and unconventional materials. Her students are not only locally but are from other countries who love to create their own art of Ikebana. 
 
+### Work Album
+[Photo gallery](https://photos.app.goo.gl/vL21H6qhT4fKQaSu6)
 
-[Check interview by SD Voyager](http://sdvoyager.com/interview/meet-yumi-rakers-yumi-rakers-ikebana-artist-teacher-demonstrator-teach-japanese-freindship-garden-balboa-park/)
+### Interview:
+[SD Voyager Magazine](http://sdvoyager.com/interview/meet-yumi-rakers-yumi-rakers-ikebana-artist-teacher-demonstrator-teach-japanese-freindship-garden-balboa-park/)

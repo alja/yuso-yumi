@@ -9,4 +9,4 @@ classes: wide
 author_profile: true
 ---
 
-Sample document listing for the collection `_portfolio`.
+Collection of activit
