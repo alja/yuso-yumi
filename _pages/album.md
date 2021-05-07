@@ -20,15 +20,10 @@ gallery3:
     image_path: /assets/images/out-coll.jpg
     alt: "placeimage 1"
 ---
-## Solo
+## Yumi
+Photos of displays and demonstrations from San Diego Sogetsu Flower Show and Ikebana International exhibitions
 {% include gallery %}
-[Solo work](https://photos.app.goo.gl/vL21H6qhT4fKQaSu6)
 
 ## Students
+Student works from Japanese Friendship Garden classroom and their works at home.
 {% include gallery id="gallery2" %}
-
-[Students Album](https://photos.app.goo.gl/vmdeppyedf2yAkri6)
-## Outreach
-{% include gallery id="gallery3" %}
-
-[Outreach gallery](https://photos.app.goo.gl/vL21H6qhT4fKQaSu6)
